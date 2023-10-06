@@ -1,1 +1,1 @@
-# one-mag.github.io
+# 1.github.io
